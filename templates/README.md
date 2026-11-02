@@ -1,0 +1,1 @@
+Future approved editable brand templates belong here. Do not substitute generated approximations for the approved logo.
