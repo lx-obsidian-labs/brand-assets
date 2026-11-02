@@ -1,0 +1,1 @@
+Upload 07_Social_Profile_1024.png, 08_Social_Banner_1500x500.png and 09_Poster_Header_1920x600.png.
