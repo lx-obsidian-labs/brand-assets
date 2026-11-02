@@ -1,0 +1,1 @@
+Upload 02_Icon_Transparent.png, 03_Icon_Black_Square.png, 04_Icon_White_Square.png, 11_Favicon_256.png and 12_App_Icon_512.png.
