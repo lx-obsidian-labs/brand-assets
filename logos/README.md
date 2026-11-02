@@ -1,0 +1,1 @@
+Approved logo assets go here. Upload 01_Original_Logo.png, 05_Full_Logo_Transparent.png, 06_Full_Logo_Black.png and 10_Watermark_Transparent.png. Preserve original artwork.
